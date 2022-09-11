@@ -1,2 +1,0 @@
-# cosgent
-artistic turmoil
